@@ -1,6 +1,6 @@
 
 # Maybe no bluue
-<img src="https://twitter.com/deepbluuest/photo" alt="avatar" width="100" height="100">
+<img src="https://github.com/xiaomaolu/nobluueweb/blob/main/12.jpg" alt="avatar" width="100" height="100">
 
 ## About Me
 
