@@ -1,31 +1,25 @@
 
-# Orange's AI
-<img src="https://raw.githubusercontent.com/orange2ai/orange2ai/main/orange.png" alt="avatar" width="100" height="100">
+# Maybe no bluue
+<img src="https://twitter.com/deepbluuest/photo" alt="avatar" width="100" height="100">
 
 ## About Me
 
-AI 产品经理。
+all in web3
+区块链学习但懒惰
+充满好奇但智商捉急
 
-Obsidian 用户。
-
-贯彻卡片笔记法与分享即学习。
 
 ## Digital Life
 
-Twitter [@oran_ge](https://twitter.com/oran_ge) 
+Twitter [@deepbluuest](https://twitter.com/deepbluuest) 
 
-Blog [notion.orangesai.com](https://notion.orangesai.com)
+Web3 notion [Notion](https://bluuest.notion.site/Web3-42069310ad10403593fb42be18b55e7c)
 
-Telegram  [t.me/aigcnote](https://t.me/aigcnote) 
+Telegram  [t.me/crushbluue](https://t.me/crushbluue) 
 
-Newsletter [orangeai.substack.com](https://orangeai.substack.com/)
-
-即刻 [orange.ai](https://web.okjike.com/u/FCEA29D3-5BB5-4174-B7A9-1DEE77CEDC46)
-
-Github [orange2ai](https://github.com/orange2ai) 
+Discord [bluue helloworld](https://discord.gg/UfwarFgedB)
 
 ## Contact
 
-Email <a href="mailto:i@orangesai.com">i@orangesai.com</a>
+Email <a href="web3@nobluue.com">web3@nobluue.com</a>
 
-Telegram [@orange_ai](https://t.me/orange_ai)
